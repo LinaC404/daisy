@@ -1,4 +1,4 @@
 # daisy
 Mark my daily life
 
-a little bored and stubborn :)
+a little bored and stubborn : )
